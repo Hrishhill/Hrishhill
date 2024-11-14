@@ -24,5 +24,5 @@ I’m currently focusing on mastering advanced blockchain techniques with Web3 a
 
 📫 Let's Connect!
 LinkedIn: Hrishikesh Hazarika
-Email: hrishikeshhaz001@gmail.comspecial ✨.
+Email: hrishikeshhaz001@gmail ✨.
 --->
