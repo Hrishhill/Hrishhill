@@ -24,6 +24,5 @@ I’m currently focusing on mastering advanced blockchain techniques with Web3 a
 
 📫 Let's Connect!
 LinkedIn: Hrishikesh Hazarika
-Email: hrishikeshhaz001@gmail.comspecial ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+Email: hrishikeshhaz001@gmail.comspecial ✨.
 --->
